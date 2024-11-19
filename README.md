@@ -1,1 +1,0 @@
-# Ethereal-foundation---essay
